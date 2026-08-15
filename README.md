@@ -1,0 +1,1 @@
+# promokod-yandex-market-dlya-prodavcov
